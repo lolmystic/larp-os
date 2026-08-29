@@ -26,3 +26,4 @@ eudev as the dev management
 
 we were bored thats surely
 post ur fastfetch or any fetch thing on the tiktok pls we need larpers to use that plsssss
+it is very much still in progress tho well make this work
